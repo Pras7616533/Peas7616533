@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **JavaScript framework**
 
-- 📝 I regularly write articles on [https://gkkgsmgslf.blogspot.com/](https://gkkgsmgslf.blogspot.com/)
+- 📝 I regularly write articles on [blog](https://gkkgsmgslf.blogspot.com/)
 
 - 📫 How to reach me **pd7616533@gmail.com**
 
