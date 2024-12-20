@@ -10,7 +10,7 @@
 
 - 📝 I regularly write articles on [blog](https://gkkgsmgslf.blogspot.com/)
 
-- 📫 How to reach me **pd7616533@gmail.com**
+- 📫 How to reach me **[Prash man](pd7616533@gmail.com)**
 
 - ⚡ Fun fact **I am so funny😁**
 
